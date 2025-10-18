@@ -130,6 +130,7 @@ I also picked up some handy bird references for Nova. I really liked some angles
 <br>
 <br>
 <br>
+
 **Quick note:** This image is hilarious and I keep laughing at it to this day:
 <br>
 
@@ -138,6 +139,7 @@ I also picked up some handy bird references for Nova. I really liked some angles
 <br>
 <br>
 <br>
+
 Anyway, here are the attempts I made using the Wave references:
 <br>
 
@@ -145,6 +147,7 @@ Anyway, here are the attempts I made using the Wave references:
 <img width="500" height="450" alt="image" src="https://github.com/user-attachments/assets/d1cd12ba-3953-401b-a2b2-4e914693dec7" />
 
 By this point, I already noticed improvement in drawing the faces of Sonic characters:
+
 <br>
 
 <img width="100" height="250" alt="image" src="https://github.com/user-attachments/assets/f6aba058-464c-4cb9-b490-2874f33efcc8" />
@@ -152,12 +155,14 @@ By this point, I already noticed improvement in drawing the faces of Sonic chara
 <img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/df3cc3eb-6209-410d-aa30-9eeb1bb69b4f" />
 
 <br>
+
 Hey, I was even able to draw two characters interacting! (Which at that point I thought would be impossible for me, lol):
 <br>
 
 <img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/3b5d8ce9-dde3-429a-9e91-d76bd4fa04ec" />
 
 <br>
+
 At this point, I tried drawing a goofy, expressive, and dynamic drawing. It was the first time I actually tried something like that in digital. This kind of goofy, happy, cartoony feel is what I actually want my art to be:
 <br>
 
@@ -169,7 +174,9 @@ Pretty cool! I still like these drawings, even noticing the problems with them. 
 
 <br>
 <br>
+
 What really inspired me to draw like this was [Keith Webb's](https://x.com/webbstawebb) art style:
+
 <br>
 
 <img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/4a7c4ec1-b9f8-492a-b415-ce0b2e7e6515" />
@@ -180,6 +187,7 @@ But then I realized: my shading was too weak! I wanted a cartoony style, but I a
 <br>
 <br>
 <br>
+
 ## Trying to Set Up a Schedule (May 2025)
 
 When May arrived, I was feeling more motivated and wanted to practice seriously. So I organized an entire one-year schedule for my practice sessions:
@@ -209,6 +217,7 @@ After setting it all up, I started practicing poses and expressions for Sonic:
 
 <br>
 <br>
+
 For perspective practice, I discovered that I could make rooms in perspective by creating a plane from above and stretching it across the floor! It really helped me figure things out.
 <br>
 
@@ -225,6 +234,7 @@ I also did some really interesting experiments mixing perspective, posing, and o
 
 <br>
 <br>
+
 For backgrounds, I had trouble pinning down the perspective. I didn't just want to copy a background—I wanted to study it and figure it out myself!
 <br>
 
@@ -245,6 +255,7 @@ These represent one-point, two-point, and three-point perspectives taken from th
 
 <br>
 <br>
+
 Another thing I discovered this month: **IT'S ALL BOXES! EVERYTHING FITS IN A BOX! IT'S ABSOLUTELY INSANE!**
 <br>
 
@@ -261,6 +272,7 @@ Armed with this wisdom, I set out to try it myself:
 
 <br>
 <br>
+
 At this point, I decided to try a small change in my lineart approach. I've always loved thick lines, so I decided to give it a go:
 <br>
 
@@ -279,6 +291,7 @@ I even started applying it to previous drawings:
 <br>
 <br>
 <br>
+
 ## Visible Improvements (June 2025)
 
 Here are some more practice drawings from that time. I really like how my lineart improved since the first ones!
@@ -309,6 +322,7 @@ At this point, I had trouble drawing the character's feet and shoes, so the boxe
 
 <br>
 <br>
+
 After that, I made a few more drawings where the shoes and feet looked more correct:
 <br>
 
@@ -317,6 +331,7 @@ After that, I made a few more drawings where the shoes and feet looked more corr
 
 <br>
 <br>
+
 Then I started to have fun! I made some stickers for use on Discord:
 <br>
 
@@ -324,6 +339,7 @@ Then I started to have fun! I made some stickers for use on Discord:
 
 <br>
 <br>
+
 And because of the stickers, some people even came to me asking me to draw their OCs. I was a bit shocked, to be honest!
 <br>
 
@@ -350,6 +366,7 @@ https://github.com/user-attachments/assets/6b249052-6b47-45c4-a975-ea855c562af3
 <br>
 <br>
 <br>
+
 After all those fun times, I started drawing more from imagination. I made this Sonic drawing, and to be honest, I absolutely adore it to this day:
 <br>
 
@@ -368,6 +385,7 @@ Here's another one (Boxes!):
 
 <br>
 <br>
+
 I also made one of my funniest drawings at this time:
 <br>
 
@@ -376,6 +394,7 @@ I also made one of my funniest drawings at this time:
 
 <br>
 <br>
+
 I also took this opportunity to practice shading:
 <br>
 
@@ -389,6 +408,7 @@ Not my best attempt, if I'm being honest. But hey, we learn from mistakes!
 <br>
 <br>
 <br>
+
 ## Animation! (July 2025)
 
 I always wanted to try animations, even if simple, so I decided to challenge myself and make a little GIF!
@@ -423,6 +443,7 @@ So many attempts... But eventually I got it!
 
 <br>
 <br>
+
 Second pose! I always draw Sonic characters with the wrong proportions on purpose, then adjust them later. I don't know if this is the best way, but hey, it worked!
 <br>
 
@@ -431,7 +452,9 @@ Second pose! I always draw Sonic characters with the wrong proportions on purpos
 <br>
 
 <br>
+
 And with that, I had the poses:
+
 <br>
 
 <img width="300" height="200" alt="image" src="https://github.com/user-attachments/assets/d1382972-5824-4268-98e5-4fa852be547e" />
@@ -447,6 +470,7 @@ I really liked this one!
 
 <br>
 <br>
+
 I was really struggling for more practice ideas, so I started drawing and trying to implement many elements at the same time:
 <br>
 
@@ -457,6 +481,7 @@ I was really struggling for more practice ideas, so I started drawing and trying
 
 <br>
 <br>
+
 Not too bad, but the shading needed to be better. Next, I wanted to make another GIF:
 <br>
 
@@ -472,7 +497,9 @@ This time, one of my all-time favorite reaction GIFs. And I wanted to put Nova, 
 <img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/079b6291-ae27-490c-a98d-2061f93dd04a" />
 
 <br>
+
 It was at this point that I started to notice: Damn, Nova is really starting to look cool in my drawings! This feeling is always so good!
+
 <br>
 
 When I was done with the GIF, I felt so happy! I still use it as a sticker to this day.
@@ -483,6 +510,7 @@ When I was done with the GIF, I felt so happy! I still use it as a sticker to th
 <br>
 <br>
 <br>
+
 ### Comparison (April vs July)
 
 <img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/ef9f421b-171e-4d6f-aa9b-dbd58572e4ad" />
@@ -493,6 +521,7 @@ Every time I see these two side by side, I smile. Just imagine how it will be in
 
 <br>
 <br>
+
 During the rest of July, I spent time on a birthday drawing for a friend. It was during this month that I also changed a few settings in Clip Studio that really helped me out.
 <br>
 
@@ -510,6 +539,7 @@ I also used this time to learn some color theory. Not a lot, but I was able to l
 <br>
 <br>
 <br>
+
 ## More Color! (August 2025)
 
 To be honest, it was this month that I stopped following the practice schedule almost entirely. I probably shouldn't have done that. On a more positive note, though, I made some more drawings during that time.
@@ -521,7 +551,9 @@ To be honest, it was this month that I stopped following the practice schedule a
 
 <br>
 <br>
+
 I also tried to paint this:
+
 <br>
 
 <img width="200" height="300" alt="image" src="https://github.com/user-attachments/assets/b0a84606-a2cb-4a56-b7f1-148fd33db86c" />
@@ -531,6 +563,7 @@ Emphasis on *try*.
 
 <br>
 <br>
+
 I also started to think a little more about Nova's design. I wanted to change it.
 <br>
 
@@ -547,6 +580,7 @@ Not too bad, but I noticed some issues with the drawing itself.
 
 <br>
 <br>
+
 After this drawing, I realized I needed to improve on constructing the bodies of my characters better, so I started practicing the construction of Sonic characters.
 <br>
 
@@ -569,6 +603,7 @@ Cute!
 <br>
 <br>
 <br>
+
 ## Eyes! (September 2025)
 
 In September I watched this cute anime:
@@ -591,6 +626,7 @@ Nova looks so cute with her eyes like this!
 
 <br>
 <br>
+
 In September I also started my first comic-related challenge (about time!)
 <br>
 
@@ -631,6 +667,7 @@ I got so excited that I even sketched out a scene from the fanfic I was writing!
 <br>
 <br>
 <br>
+
 ## The Fanart Contest (October 2025)
 
 This month was so crazy! I joined the official SEGA Discord server and ended up making some friends there. Then Sonic Racing Crossworlds released at the end of September, and at the start of October, the server admins came up with a fanart contest!
@@ -670,6 +707,7 @@ But most importantly, I was having so much fun drawing one of my favorite charac
 <br>
 
 <br>
+
 ### Wave Crossworlds!
 
 <img width="500" height="500" alt="image" src="https://github.com/user-attachments/assets/363776ea-1ae6-4d6b-82e3-6c78229c3b09" />
@@ -680,6 +718,7 @@ https://github.com/user-attachments/assets/aad28198-4ab2-4b28-9200-df133143eb87
 
 <br>
 <br>
+
 I did my best with this and was happy. And as if that wasn't enough, BOOM.
 <br>
 
@@ -691,5 +730,6 @@ I had won the contest! That felt unreal! It was hard to believe, but it did feel
 <br>
 <br>
 <br>
+
 ## The Future
 Is always uncertain, but I want to keep drawing. I want to get better, i can't wait to see where I'll be in the next months!
