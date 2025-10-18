@@ -195,12 +195,12 @@ Another thing I discovered in this month about perspective: IT'S ALL BOXES! EVER
 <img width="600" height="400" alt="image" src="https://github.com/user-attachments/assets/888eec82-fd63-4a7e-8936-d20eccadc5b5" />
 
 
-now armed with this wisdom from the heavens, I set to try it myself!
+Now armed with this wisdom from the heavens, I set to try it myself!
 
 <img width="200" height="250" alt="image" src="https://github.com/user-attachments/assets/05241a15-666f-411f-899b-3645c43bac62" />
 <img width="200" height="250" alt="image" src="https://github.com/user-attachments/assets/20a1652d-8166-4cd9-874c-c1629ad7aa03" />
 
-at this point, I decided to aslo try a little change in my way of doing lineart. I always loved very think lines, so I decided to give it a go!
+At this point, I decided to aslo try a little change in my way of doing lineart. I always loved very think lines, so I decided to give it a go!
 
 <img width="200" height="450" alt="image" src="https://github.com/user-attachments/assets/6ed559ed-7284-4d77-b57d-f6b59be1b6c6" />
 
@@ -214,6 +214,7 @@ I even started applying it to previous drawings:
 <img width="800" height="600" alt="image" src="https://github.com/user-attachments/assets/a3178e6c-9835-4670-bfb1-bd156fd090db" />
 
 
+## Visible improvements (June 2025)
 Here are some more pracctice drawings from that time. I really like how my lineart improved since the first few ones!
 
 <img width="200" height="400" alt="image" src="https://github.com/user-attachments/assets/f4dbd4dd-25f5-4df8-b0a4-c194ec87979a" />
@@ -246,10 +247,13 @@ After that, I did make a few more drawings there the shoes and feet seemed more 
 
 
 And them I started to have fun! I made some stickers for me to use for my discord!
+
 <img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/22be80eb-1737-4b00-ad93-682b3b1a22a1" />
 
 
 And because of the stickers, some people ecven came to me to ask me to draw their OCs. I was a bit shocked, to be honest:
+
+### Clef's OC: Ace
 
 <img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/ee88ae91-b2fb-40e9-8e68-d120d366e76d" />
 
@@ -258,6 +262,9 @@ Timelapse:
 
 https://github.com/user-attachments/assets/dca04cb9-8324-4385-b7b9-9ff24cffc2bb
 
+Ghastly's OC: Spike
+
+<img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/f017fbfe-a494-48c3-9747-d35b51ae0da4" />
 
 <img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/0ab890e0-ed3f-4be8-8d8b-a767bd245beb" />
 
@@ -266,3 +273,245 @@ Timelapse:
 https://github.com/user-attachments/assets/6b249052-6b47-45c4-a975-ea855c562af3
 
 
+After all those fun times, I started to try drawing from imagination more. So I made this Sonic drawing, and , to be honest, I absolutely adore it to this day:
+
+<img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/8da74bf3-9439-4e0f-b2d2-221dd5623ccf" />
+<img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/1aea2812-1989-4af1-a524-856a934b0fda" />
+<img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/1b2d715c-9a0e-4cf3-87e1-72a72cf762af" />
+<img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/a218c6a2-1b91-432c-abef-3cf966404cf8" />
+
+
+Here is another one (Boxes!)
+
+<img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/93db508d-a8a0-4cff-8b07-2018fb1c624c" />
+<img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/a11aaefc-1cce-4a1d-bd41-50c7a038b73c" />
+<img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/af84d2ca-5a81-4afd-aa3c-a2d21630e3ab" />
+<img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/d2712bb9-a12f-4aa6-9ff8-b6f85fcd1f4b" />
+
+Also I made one of my funniest drawings at this time:
+
+<img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/3efe33f2-1bd5-42ab-b5ab-7e884175877a" />
+<img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/45cde758-e95d-4ce4-bcd5-53d09a18f33a" />
+
+I also took this oportuniy to practice that shading!
+
+<img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/4e82cdcb-d3b7-4972-89e0-132ac1d715c8" />
+<img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/efeafc8c-f95c-4213-98dd-3a63d54f92fd" />
+<img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/a5f03b38-6419-42b1-a411-a3c697d4a854" />
+<img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/f1097d13-fe09-47a2-a52e-65ada1adca04" />
+
+not my best atempt, tbh. But hey, in mistakes we learn!
+
+## Animation! (July 2025) 
+
+I always wanted to try some animations, even if simple, so I decided to challenge myself and make a little gif!
+
+it all starts at the sketch, though. I wanted to replicate this high-five gif:
+
+![hippo](https://media1.tenor.com/m/otKA66ctn9YAAAAd/scout-and-jester-dap-up-scout-and-jester.gif)
+
+well, it was a simple enough gif, right? 2 frames and some movement! I can do it! (right?)
+
+<img width="200" height="350" alt="image" src="https://github.com/user-attachments/assets/4b6a593f-b9b4-400d-9787-83aee5230712" />
+<img width="200" height="350" alt="image" src="https://github.com/user-attachments/assets/aebd648d-cee3-4e3c-beb8-11fe3baa4b3f" />
+
+Now, something I do a lot is fix the drawing! Holy... how many times did I have to fix to get the face right....
+
+<img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/df688ef0-1b62-4897-ae21-fd460fb8f7b9" />
+<img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/8ed91b8d-5f8a-4ed6-92f5-6929a802f335" />
+<img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/f7d0893f-abac-4ffd-a7dc-14939e24567c" />
+<img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/15a7642a-9a32-4e64-854a-838d86ce1bcc" />
+<img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/3af397e5-9cc5-45d9-8405-59eff09d5508" />
+<img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/60d5cf96-4164-4ead-90d9-1731aaf3a8ac" />
+
+So many atempts... But eventually I got it lol.
+
+Sconnd pose! I alsways draw Sonic characters with the wrong proportions on purpose, and then adjust them later. I dont know if this is the best way, but hey, it worked!
+
+<img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/e95a9ecc-37aa-4652-aba0-7cbdee74b3bc" />
+<img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/e843c97f-f98c-4633-b17b-53e261c23f62" />
+
+And with that, I had the poses!
+
+<img width="300" height="200" alt="image" src="https://github.com/user-attachments/assets/d1382972-5824-4268-98e5-4fa852be547e" />
+
+and then What I had to do was find some animated backgrounds online, and throw theimagesn in a video editor. Ang here is the result:
+
+![ltns-2 0-no-text-light](https://github.com/user-attachments/assets/80f33a27-9eee-4302-a3ff-10bbabaab501)
+
+
+I really liked this one!
+
+ I really was struggling for more practice Ideas, so I started drawing and trying to implement many elements at the same time.
+
+<img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/dbcd8dbe-64d8-4057-80c1-81c4c8f5930e" />
+<img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/6977a856-be33-4f9e-893c-13a542624790" />
+<img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/7b699e7d-ba4c-43ad-8ace-53b9757e7ea3" />
+<img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/60fa88c9-1ccb-403e-89c4-a18aed73e224" />
+
+Not too bad, but the shading needed to be better. The next thing I wanted to make, was another gif:
+
+![hippo](https://media1.tenor.com/m/AdaSVzqCxLIAAAAC/yugioh-anime.gif)
+
+This time, one of my all time favorite reaction gifs. And I wanted to put Nova, my OC, in it.
+
+<img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/38cf1d0a-1645-46fb-8e48-c459089b4036" />
+<img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/5a8b52a4-516f-464b-bc0d-b51f64ff194f" />
+<img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/70b6f969-d2e1-430f-9829-6fb561b7a871" />
+<img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/079b6291-ae27-490c-a98d-2061f93dd04a" />
+
+
+It was at this point that I started to take some notice:  Damn... Nova is relly stating to look cool in my drawings! This feeling is always so good!
+
+When I was done with the gif, I felt so happy! I still ise it as a sticker to this day.
+
+![ezgif-1486ac3455838c](https://github.com/user-attachments/assets/be262dc4-da79-4a64-82ef-a38a9d53e03d)
+
+## Comparison (April VS July)
+<img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/ef9f421b-171e-4d6f-aa9b-dbd58572e4ad" />
+<img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/6c76bccf-839b-4e0c-bc5c-8ca381214223" />
+
+Everytime I see these two side by side, I smile. Just imagine how it will be in a few more months!
+
+during the rest of july, I spent some time on a little birthday drawing for a friend. I was during this month too, that  changed a few settings on clipstudio that really helped me out.
+
+<img width="500" height="500" alt="image" src="https://github.com/user-attachments/assets/2541a6e9-7b12-4e92-bb84-0ca1b2ef9746" />
+
+I also used this time to learn some color theory stuff. Not a lot, but  I was able to learn a bit about hue shifting and not relying too much on the multiply layer.
+
+<img width="200" height="300" alt="image" src="https://github.com/user-attachments/assets/26ee2af7-33e0-4356-badb-9a9ac228371e" />
+<img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/095ff9ad-57f1-4dc5-96ff-1be818d6026b" />
+<img width="200" height="300" alt="image" src="https://github.com/user-attachments/assets/f0e0d8ad-e211-464f-987e-41b4cf37e829" />
+
+
+## More color! (August 2025)
+ To be honest, it was at this month that I stopped following the practice schecudle almost entirely.
+ 
+ I probably shouldn't have done that. In a more positive note, though, I made some more drawings during that time.
+
+<img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/0711d84d-17ab-438f-81fd-604467fe3afa" />
+<img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/1ab65731-52f5-4f5e-ab2f-c4d0e992494f" />
+<img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/c77bf790-0404-4cff-8b0f-c5ba7184aa3d" />
+
+
+I also tried to paint this:
+
+<img width="200" height="300" alt="image" src="https://github.com/user-attachments/assets/b0a84606-a2cb-4a56-b7f1-148fd33db86c" />
+<img width="200" height="300" alt="image" src="https://github.com/user-attachments/assets/ac36a221-bc10-4033-902d-2262339d4d04" />
+
+Emphasis on *try*.
+
+I also statrted to think a little bit mor on Nova's design, I wanted to change it.
+
+<img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/dbceee04-8f85-4dc5-8070-6ff1b34626bd" />
+<img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/a9fa4b01-e391-45ac-abd1-2696a2bc4573" />
+<img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/a45b9b24-b98a-494a-b635-7fb2999e7bc1" />
+
+I ended up making this:
+
+<img width="400" height="646" alt="image" src="https://github.com/user-attachments/assets/d331982f-4fa2-4cb6-9a45-26258736e036" />
+
+not too bad, but I noticed some bad things on the drawing itself.
+
+
+After this ddrawing, I noticed that I needed to improve on constructing the bodies of my characters better, so I started practicing the construction of Sonic characters.
+
+<img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/f4552e52-f9dd-46a6-9d38-dd2d270fc100" />
+<img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/fef80d05-c726-4aad-9666-45742803848a" />
+<img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/67ba8736-8f59-427f-8b9e-9729d87c347d" />
+<img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/aa983c89-d5f2-474a-97b2-60f535eb2f4c" />
+<img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/f52d3f74-8110-4668-8620-985b0f45112c" />
+<img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/9165f50e-fb03-4cd0-b2c8-f9197445fc50" />
+
+
+This actually really helped me posing character a little better!
+
+Cute!
+
+<img width="400" height="400" alt="image" src="https://github.com/user-attachments/assets/990b29bf-cf74-4b69-b2bd-51d1211565b7" />
+
+
+## Eyes! (September 2025)
+
+I semtember I watched this cute anime:
+
+<img width="400" height="500" alt="image" src="https://github.com/user-attachments/assets/879ba083-81c3-4063-87c4-c9d2ba2b6c4c" />
+
+And something that caught my attention was the way the characters eyes were drawn I really really liked it!
+
+So I looked at them with attention and decided to incorporate it i my drawings.
+
+Nova looks so cute with her eyes like this!
+
+<img width="400" height="400" alt="image" src="https://github.com/user-attachments/assets/c645c4f6-b58c-4103-bb9b-6cd929eedb93" />
+
+
+In september I also started my first comic related challenge (about time!)
+I decided to tr redrawing an archie comics page that i didnt like the style of:
+
+<img width="400" height="400" alt="image" src="https://github.com/user-attachments/assets/aeaa63b6-64ed-4ee4-b42e-f863db8a0187" />
+
+I  started to make it in the same structure:
+
+<img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/f633d50e-6f0e-435a-8cf5-3c8dc986f76e" />
+<img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/b835c88e-45fd-47c0-8d95-88779922e8c6" />
+<img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/4eab9e3a-0c88-4494-ae19-97bd40bc713b" />
+<img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/c5db604c-5a89-47be-a795-d8afabcb8d36" />
+<img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/7582a2c1-acaa-4bae-880d-242e15ca322b" />
+<img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/3c2bd7be-2a26-4e7a-9b9d-abc124049c6e" />
+<img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/73e16707-7799-4b55-ae27-946a430a474d" />
+
+The final result:
+
+<img width="400" height="400" alt="image" src="https://github.com/user-attachments/assets/7d2293f4-3c36-4ec3-8e8c-2f296ad723e7" />
+
+
+This was way harder than I expected! And thats good! I felt some improvement, and learned something new!
+
+I got so excited, that I even sketched out a scene from the fanfic I was writting!
+<img width="516" height="725" alt="image" src="https://github.com/user-attachments/assets/0b09022b-7624-4afe-803d-f2ed5e7dc418" />
+
+
+## The fanart contest (October 2025)
+
+This month was so crazy! I joined the official SEGA discord server, and ended up making some friends there. Then Sonic Racing Crossworlds released at the end of September, and at the start of October, the server admins came up with a fanart contest!
+
+<img width="732" height="445" alt="{9B090C10-7D61-4AEB-AA4C-F411E278F4AA}" src="https://github.com/user-attachments/assets/70aa1060-7d5c-4053-8c6e-40c8d1f78163" />
+
+I usually dont take part in this kind of stuff. I'm too shy, but I love SOnic so much, and I was enjoying Crossworlds a lot! So I said, "Ah fuck it" and joined. I wanted to make a drawing of my main in the game: Wave.
+
+<img width="288" height="288" alt="image" src="https://github.com/user-attachments/assets/97cbbcf6-016f-44ad-93dd-2206521b5272" />
+
+So I got to work! I had a clear idea of her making a drift at E-Stadium, my favorite track.
+
+I got a cool surfing refference pose and got into it!
+
+<img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/586c901d-9fa5-4ba6-8d41-8a841e676295" />
+<img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/d2c467c1-20d0-4456-b6dd-174ef6c01357" />
+<img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/ee424ec1-7ebd-4285-bf65-f568e9d09fbf" />
+<img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/320f99ef-a774-4a38-a428-90985981ffb9" />
+<img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/cfa491e0-c704-4e5d-a239-0c9d1b790667" />
+<img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/c320b8b0-da19-42ea-a433-949925db8200" />
+<img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/41bdcc5d-44c9-4c11-97ef-be444a05f7eb" />
+<img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/8f4564d7-fb41-4722-8756-97525ec5a448" />
+<img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/4e70b09f-13a2-4ae1-8b19-e1f82cf89424" />
+
+I put a lot of effort into it, and used absolutely verything I had learned from the past months. I really tried with this!
+But most importantly at all, I was having so much fun, drawing one of my favorite characters, that I almost forgot about the contest lmao.
+
+
+### Wave Crossworlds!
+<img width="500" height="500" alt="image" src="https://github.com/user-attachments/assets/363776ea-1ae6-4d6b-82e3-6c78229c3b09" />
+
+### Timelapse:
+
+https://github.com/user-attachments/assets/aad28198-4ab2-4b28-9200-df133143eb87
+
+I did my best with this, and was happy. And as if that wasn't enough, BOOM.
+
+<img width="701" height="264" alt="{AB6E2E3B-9B86-4D4E-920A-E0A43A647E51}" src="https://github.com/user-attachments/assets/d527cb59-6354-477a-964e-1aa574fbdd8b" />
+
+I had won the contest! That felt unreal! It was hard to believe, but it did feel great having some validation.
+
+## The Future
+Is always uncertain, but I want to keep drawing. I want to get better, i can't wait to see where I'll be in the next months!
