@@ -84,6 +84,7 @@ Then I started light practice around parts of the body, though I dropped it pret
 <br>
 <br>
 Next, I started to want to learn more about perspective, so I gave [Dom Ho Kim's Space Drawing Perspective](https://pt.scribd.com/document/863084480/Dong-Ho-Kim-Space-Drawing-Perspective) a read.
+<br>
 
 <img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/89e2fca4-48ef-4bbd-8e39-9d9d28d1e2ec" />
 <img width="200" height="150" alt="image" src="https://github.com/user-attachments/assets/bbfd4b61-3082-46d2-a612-cf69d85aa839" />
