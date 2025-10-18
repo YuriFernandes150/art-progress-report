@@ -51,6 +51,7 @@ Then I bought Clip Studio Paint, and it really made a difference for me! It was 
 
 <br>
 <br>
+
 ## The (Almost) Daily Practice Era (April 2025)
 
 Around April, I really decided to commit to drawing. I was inspired by so many things! The first drawing I made during this period was themed around The Finals:
