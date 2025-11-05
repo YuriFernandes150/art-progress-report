@@ -729,7 +729,52 @@ I had won the contest! That felt unreal! It was hard to believe, but it did feel
 
 <br>
 <br>
+
+After the fanart contest, i felt a bit drained. That piece took a lot out of me to make, and I was happy and satisfied for a few days. But that same peice made me realize something else. I need to get better at backgrounds.
+
+## Mini Background practice
+During the rest of october, I tried doing many different things. To be honest, I felt a bit stuck then, almost like an art block, but not quite. I still practiced, though.
 <br>
+<br>
+
+<img width="600" height="600" alt="image" src="https://github.com/user-attachments/assets/bd04a4b5-7797-4501-a95d-61f830d67fb8" />
+
+<br>
+<br>
+
+Then I imediately ditched that, beecaue it drained my soul. I'm going back to it eventually. But I learned something this month. Its good to practice, but drawing what you like is not wrong.
+
+## The GSL Method
+
+During the final days of october, I found out abnout the GSL method for drawing poses. SO I decided to truy and draw the human figure more.
+
+I followed [this cool video](https://www.youtube.com/watch?v=hRb-XHg9g24&list=PLUqm7Uq0GjEAEESuxohlLkbfDUEhqHM3N&index=4&t=99s) on de subject.
+
+<br>
+<br>
+
+<img width="500" height="500" alt="image" src="https://github.com/user-attachments/assets/46e29268-9415-4943-baf8-f4481a8edbf9" />
+
+<img width="400" height="400" alt="image" src="https://github.com/user-attachments/assets/7c52b3e6-dd83-4403-9f10-8bb874ac9dc0" />
+
+<br>
+<br>
+
+The month ended with a little cartoon drawing I mad as a request from a friend: Speedy Gonzalez dressed up as Sonic.
+<br>
+<img width="500" height="500" alt="image" src="https://github.com/user-attachments/assets/02fb1059-3626-4f61-abc1-02181062d27b" />
+<br>
+<br>
+
+The month of October closed with this drawing. Durin gthis month, i found a great place called the [Winged Canvas Discord](https://discord.com/invite/JDwJDCC), and they are all very nice people that provided me with some nice feedback!
+
+<br>
+
+So for the month of November, I plan to practice figure drawing and poses.
+
+<img width="500" height="70" alt="image" src="https://github.com/user-attachments/assets/05471585-c986-4793-a2c1-14483b2e61bf" />
+
+Leave it to me!
 
 ## The Future
 Is always uncertain, but I want to keep drawing. I want to get better, i can't wait to see where I'll be in the next months!
